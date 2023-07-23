@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AboolfazlRoodsarabi
+- 👀 I’m interested in swiming and crypto
+- 🌱 I’m currently learning blockchain and data 
